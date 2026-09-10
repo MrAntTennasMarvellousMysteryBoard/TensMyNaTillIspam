@@ -43,6 +43,8 @@ Minor! DNI pedos. I've already got sent pics before and been groomed.
 
 Quick facts
 
+I for the life of me cannot get the hype on AU's they just never feel right to me like those itchy shirts that look pretty but are sensory HELL to wear
+
 Split screens au is Discontuined.
 
 I once got told I should "pray away my autism" back when I was still in school.
