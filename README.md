@@ -1,4 +1,7 @@
-Hey. Im Eyes.
+Hey. Im Eyes, also known as Bug/Nightlight depending on what my skin is at the moment
+
+I use He/they pronouns nowadays
+If possible you can use bud/buds/budself for me I don't mind neopronouns 
 
 Aparrently people just start copying my github stuff when I say something is stupid, so I see ya.
 
@@ -39,8 +42,6 @@ https://lookatmyeyes.straw.page
 Minor! DNI pedos. I've already got sent pics before and been groomed.
 
 Quick facts
-
-I use He/they prounons nowadays
 
 Split screens au is Discontuined.
 
