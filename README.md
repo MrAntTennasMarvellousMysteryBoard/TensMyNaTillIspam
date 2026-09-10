@@ -6,6 +6,11 @@ Unmeddicated for over 3 years by now.
 
 Taken out of school by parents and they never taught me anything after that.
 
+Will get my autism evaluated in December 2026, will update when finished 
+
+Anger issues.
+as of September 2026 the previous 3 months have been a living hell.
+
 Dominican heritage.
 
 <img width="554" height="586" alt="Screenshot 2026-07-14 11 37 06 AM" src="https://github.com/user-attachments/assets/92d1e652-112d-45ec-87c3-372c56447368" />
