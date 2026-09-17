@@ -20,7 +20,10 @@ Dominican heritage.
 
 
 
-bug eyes tut for bugsonas on ponytown.
+
+
+
+# bug eyes tut for bugsonas on ponytown.
 
 <img width="100" height="100" alt="Screenshot 2026-07-14 11 40 51 AM" src="https://github.com/user-attachments/assets/fa664bfe-9ea3-4098-9194-880417da719f" />
 
@@ -37,7 +40,8 @@ bug eyes tut for bugsonas on ponytown.
 
 <img width="100" height="100" alt="Screenshot 2026-07-14 11 41 24 AM" src="https://github.com/user-attachments/assets/c6b4f5c1-25d1-42bd-ae7b-27a03f31b71e" />
 
-https://lookatmyeyes.straw.page 
+
+# random things idk
 
 Minor! DNI pedos. I've already got sent pics before and been groomed.
 
@@ -56,8 +60,32 @@ I'm not really allowed much food.
 We get it, being a fiction kin is weird or whatever, I personally use it to cope with whats wrong with me. Fuck off.
                           
  dni if homophobic/transphobic/proshipper/pedo
-<!--
-**TensMyNaTillIspam/TensMyNaTillIspam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
 
-! [my-tenna-gif-collection-v0-mjndu1i28baf1](https://github.com/user-attachments/assets/6e31feab-309b-496e-9951-bc349f61e955)
-![my-tenna-gif-collection-v0-h9w9d1i28baf1](https://github.com/user-attachments/assets/5e3d7a76-5e82-4e34-bba1-101d3b4821b3)
+
+<details>
+
+<summary>hi 🧇 </summary>
+
+hi hi hi hi hi hi!
+in a good mood while writing this!
+
+
+</details>
