@@ -59,7 +59,7 @@ I'm not really allowed much food.
 
 We get it, being a fiction kin is weird or whatever, I personally use it to cope with whats wrong with me. Fuck off.
                           
- dni if homophobic/transphobic/proshipper/pedo
+ dni if homophobic/transphobic/proshipper/pedo/pro ai
 \
 \
 \
@@ -78,7 +78,46 @@ We get it, being a fiction kin is weird or whatever, I personally use it to cope
 \
 \
 \
-
+\
+\\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\\\
+\
+\
+\
+\\
+\
+\\
+\
+\
+\\\\
+\
+\\
+\\
+\
+\\
+\
+\
+\
+\
+\
+\
+\\
+\\
+\
+\
+\\
+\\
+\
 
 <details>
 
@@ -86,6 +125,17 @@ We get it, being a fiction kin is weird or whatever, I personally use it to cope
 
 hi hi hi hi hi hi!
 in a good mood while writing this!
+
+here's my art!
+<img width="1425" height="913" alt="99FB978E-0DE3-4AD2-8C32-70AEF8D57F86" src="https://github.com/user-attachments/assets/060f4f45-b8e8-49f8-ae4f-80ee74e4d248" />
+<img width="2000" height="1500" alt="IMG_9584" src="https://github.com/user-attachments/assets/79974f80-914e-467c-a59a-d99680295854" />
+<img width="2000" height="1500" alt="IMG_9274" src="https://github.com/user-attachments/assets/510bad2c-240c-44f2-986e-508185455eef" />
+<img width="2000" height="1500" alt="IMG_9274-1" src="https://github.com/user-attachments/assets/1d6de857-bcb3-418d-aca3-0fab260f50f3" />
+<img width="1742" height="1721" alt="IMG_9271" src="https://github.com/user-attachments/assets/ef71e585-7d15-4c8e-b94d-0a5fe7238ca5" />
+<img width="2315" height="2424" alt="IMG_9273" src="https://github.com/user-attachments/assets/faf68910-b46e-4535-807d-61c1454b1925" />
+<img width="720" height="1159" alt="C2724800-D623-4BFD-A4F5-69AB370B5C7C" src="https://github.com/user-attachments/assets/716b000c-c730-4999-8e4d-0d637dd2b7a9" />
+<img width="2016" height="2265" alt="IMG_9472" src="https://github.com/user-attachments/assets/c04f3cf0-7114-4c43-b3ff-c621ae9b9305" />
+<img width="1835" height="2355" alt="IMG_9272" src="https://github.com/user-attachments/assets/a7aa9646-7012-4e80-a5f0-c33e24d98ec5" />
 
 
 </details>
